@@ -1,4 +1,4 @@
-# Lesson 1: Foundational Concepts
+# Lesson 1: Intro to Peace Innovation
 
 **Duration:** 90 minutes (lecture + discussion)  
 **Level:** Undergraduate/Graduate  
